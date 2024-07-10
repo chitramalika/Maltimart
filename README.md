@@ -10,7 +10,6 @@
 ![Screenshot 2024-07-10 111000](https://github.com/chitramalika/Maltimart/assets/153985723/3de38547-efbf-4748-9f31-45f6090374d0)
 ![Screenshot 2024-07-10 111015](https://github.com/chitramalika/Maltimart/assets/153985723/cae80133-42cf-4ad8-9174-02539f974c89)
 ![Screenshot 2024-07-10 111026](https://github.com/chitramalika/Maltimart/assets/153985723/23356a03-1352-484b-978a-5178f24693a5)
-![Screenshot 2024-07-10 111039](https://github.com/chitramalika/Maltimart/assets/153985723/e535fe0f-6cdc-4791-88aa-bb73657ae1ae)
 ![Screenshot 2024-07-10 111100](https://github.com/chitramalika/Maltimart/assets/153985723/999c42de-9564-4f1d-8bdc-71e2fa85adc5)
 ![Screenshot 2024-07-10 111127](https://github.com/chitramalika/Maltimart/assets/153985723/6a67bf35-0a35-4f49-a59e-45d5568ea287)
 ![Screenshot 2024-07-10 111138](https://github.com/chitramalika/Maltimart/assets/153985723/9ffe14e1-aefa-4947-a844-0d2a7395f124)
